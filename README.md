@@ -1,4 +1,4 @@
-I have 5 years of professional experience in software developement & data platforms
+I have 5 years of professional experience in software development & data platforms (Business Intelligence)
 
 📫 How to reach me: 
 - declarationcb@gmail.com
